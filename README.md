@@ -1,4 +1,4 @@
-# Blooket-join
+# How to Get Started with Blooket - Student Edition
 [Blooket](https://www.codeplayon.com/play-blooket-join-code/) is a game for education platform that is designed to make learning enjoyable. Games for kids such as quizzes or puzzles, fall under the authority to the Teacher.
 
 The kids must make use of their own devices to gives answers. Parents who set the Blooket account to their kids love the trivia quizzes that have an element of games since they let their children engage and to learn.
